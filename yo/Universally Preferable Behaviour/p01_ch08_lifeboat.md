@@ -1,8 +1,8 @@
-## Lifeboat Scenarios
+## Awon Iru Isele Oko Omi
 
-The fact that UPB only validates logically consistent moral theories does not mean that there can be no conceivable circumstances under which we may choose to act *against* the tenets of such a theory.
+Oro pe awon imo iwa-rere ti o ja geere nikan ni UPB ma n dibo fun ko tumo si pe ko si awon ona kan pato labe eleyi ti a le yan lati gbe ogun ti iru awon eka iru imom bee.
 
-For instance, if we accept the universal validity of property rights, smashing a window and jumping into someone’s apartment without permission would be a violation of his property rights. However, if we were hanging off a flagpole outside an apartment window, and about to fall to our deaths, few of us would decline to kick in the window and jump to safety for the sake of obeying an abstract principle.
+Fun apere, ti a ba gba bi otito eto dukia se gbile si, fifo ferese ati fi'fo sinu ile elomiran laini ase a je ipalara eto dukia iru eni bee. Nitooto, ti a ba n ro dio-dio labe opa-asia ni ita ferese ile kan, ti o si ku die ki a jabo si iku wa, opolopo wa ni a o ko lati gba ferese naa ni ipa ti a o si be si iye nitori pe a gboran si eko ainilari kan.
 
 In the real world, it would take a staggeringly callous person to press charges against a man who destroyed a window in order to save his life – just as it would take a staggeringly irresponsible man to refuse to pay restitution for said window. The principle of “avoidability” is central here – a man hanging off a flagpole has little choice about kicking in a window. A man breaking into your house to steal things clearly has the capacity to avoid invading your property – he is not cornered, but is rather the *initiator* of the aggression. This is similar to the difference between the woman whose man cheats on her, versus the woman whose man locks her in the basement.
 
